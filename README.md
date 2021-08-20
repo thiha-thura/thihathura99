@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @thihathura99
+- 👋 Hi, I’m @Thura
 - 👀 I’m interested in Technology and History
 - 🌱 I’m currently learning Technology
 - 💞️ I’m looking to collaborate on 
